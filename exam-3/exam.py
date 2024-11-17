@@ -1,0 +1,1 @@
+#i couldnt do any of codwars, sry but i havent learned it
